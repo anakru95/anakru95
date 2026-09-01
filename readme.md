@@ -1,4 +1,4 @@
-##Jeg heter Anastasiia og er elev på IM ved Gjennestad VGS.
+## Jeg heter Anastasiia og er elev på IM ved Gjennestad VGS.
 
 På fritiden liker jeg å:
 
